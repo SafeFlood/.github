@@ -30,7 +30,7 @@ To develop AI-driven tools that:
 | Farah Putri Firdausa         | [LinkedIn](http://linkedin.com/in/farah-putri-firdausa/)   |
 | Putu Gede Pradana Adnyana    | [LinkedIn](http://linkedin.com/in/pradanaadn)    |
 | Ajibul Rizki                 | [LinkedIn](http://linkedin.com/in/pradanaadn)  |
-| Eukardi Yanto Kristov Waruwu | [LinkedIn](http://linkedin.com/in/pradanaadn) |
+| Eukardi Yanto Kristov Waruwu | [LinkedIn](https://inkedin.com/in/kristovwaruwu/) |
 
 ---
 
